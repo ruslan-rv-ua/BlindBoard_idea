@@ -1,0 +1,1 @@
+# BlindBoard_idea
